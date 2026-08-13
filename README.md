@@ -8,3 +8,4 @@
 <img width="604" height="133" alt="Image" src="https://github.com/user-attachments/assets/bc49bb4c-cb48-4363-acff-6e1dee4c2274" />
 
 My chud </3 @angeIist
+𝐬𝐢𝐠𝐧 𝐚𝐭𝐚! ➡︎ [ata](news.atabook.org)
